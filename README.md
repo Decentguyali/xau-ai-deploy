@@ -1,1 +1,1 @@
-# xau-ai-deploy
+Jake_XAUUSD_Scalper_Request_#9972_ACCESS
